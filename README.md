@@ -1,4 +1,4 @@
-Doing a lot of work.
+Who is a hero?
 
 Working really hard.
 

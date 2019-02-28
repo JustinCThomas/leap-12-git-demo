@@ -1,4 +1,4 @@
-Who is a hero?
+C# heroes!
 
 Working really hard.
 
